@@ -5,7 +5,7 @@
 
 Email: subashdahal@example.com
 
-Phone: +1 (123) 456-7890
+Phone: +97 0450356284
 
 LinkedIn: linkedin.com/in/subashdahal
 
