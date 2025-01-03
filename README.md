@@ -9,7 +9,7 @@ Phone: +97 0450356284
 
 LinkedIn: linkedin.com/in/subashdahal
 
-GitHub: github.com/subashdahal
+GitHub: [github.com/subashdahal](https://www.linkedin.com/in/dahalsubash200/)
 
 **Summary**
 
